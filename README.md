@@ -6,7 +6,6 @@ Theres been few people going around stealing my character designs etc. please wh
 
 Aug 1.2012 (clearly minor.adults dniuf.) she/her ➜ they/them hypersensitive,please dont be too mean. I regret everything quickly.
 
-1000031907
 ..intro ˙ . ꒷ 🍰 . 𖦹˙—.ᐟ.ᐟ.ᐟ..
 
 #ᯓ★ My name is Kylie you can call me any nickname like Ky or any character im cosplaying!! or mainly call me Pest,heh. . .⋆🐾°
