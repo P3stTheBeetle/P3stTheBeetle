@@ -1,10 +1,11 @@
-Quick explanations!! ˙✧˖°📷 ༘ ⋆｡˚
+Quick explanations and about me!! ˙✧˖°📷 ༘ ⋆｡˚
 
 Hi welcome ladies/gentlemans im making this account and all for ponytown so If it goes buns im sorry
 
 Theres been few people going around stealing my character designs etc. please whisper me when taking inspp or wanting to copy few stuff,maybe ill help you with hard parts if u ask me first before taking inspo...I dont let anyone copy my ponies anyways,I gave effort to them, "I" gave effort,not you. so please DNC any of my ponies in pony town. thank you for listening ♬⋆.˚
 
-Aug 1.2012 (clearly minor.adults dniuf.) she/her ➜ they/them hypersensitive,please dont be too mean. I regret everything quickly.
+Aug 1.2012 (clearly minor.adults dniuf.) they/them 
+hypersensitive,please dont be too mean. I regret everything quickly.
 
 ..intro ˙ . ꒷ 🍰 . 𖦹˙—.ᐟ.ᐟ.ᐟ..
 
@@ -17,6 +18,8 @@ quick warn! Mostly offtab if im alone or the person im C*H'ing is afk so if you 
 #× Dni! ; people who cant take jokes,Pedos(get out of my page please),10- aged people,PROSHIPPERS (╥﹏╥) , romantical darkshippers can int sexual ones dni.
 
 #ᯓ★ I like drawing,writing,helping people,doing jokes whlist making people laugh and hanging out on pony town with friends,trust me I love it.𖹭𖹭
+
+#★!! if Im being too weird please lmk,I wouldnt want anyone to be uncomf because of me(⁠๑⁠•⁠﹏⁠•⁠)
 
 <!--
 **P3stTheBeetle/P3stTheBeetle** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
