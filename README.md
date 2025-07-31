@@ -1,5 +1,7 @@
 Quick explanations and about me!! ˙✧˖°📷 ༘ ⋆｡˚
 
+![1000032230](https://github.com/user-attachments/assets/21d86884-7579-4441-9010-7b676e0de486)
+
 Hi welcome ladies/gentlemans im making this account and all for ponytown so If it goes buns im sorry
 
 Theres been few people going around stealing my character designs etc. please whisper me when taking inspp or wanting to copy few stuff,maybe ill help you with hard parts if u ask me first before taking inspo...I dont let anyone copy my ponies anyways,I gave effort to them, "I" gave effort,not you. so please DNC any of my ponies in pony town. thank you for listening ♬⋆.˚
