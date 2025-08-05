@@ -1,6 +1,7 @@
 Quick explanations and about me!! ˙✧˖°📷 ༘ ⋆｡˚
 
-![1000032230](https://github.com/user-attachments/assets/21d86884-7579-4441-9010-7b676e0de486)
+Me and my wife core!!! ;
+![1000032653](https://github.com/user-attachments/assets/327d626a-7d01-48f6-bdfb-47955e7ea59a)
 
 Hi welcome ladies/gentlemans im making this account and all for ponytown so If it goes buns im sorry(⁠-⁠_⁠-⁠;⁠)⁠・⁠・⁠・
 
