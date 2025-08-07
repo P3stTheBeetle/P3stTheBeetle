@@ -34,7 +34,7 @@ put "/Nsrs" "/jk" First when doing a joke,Or I will take in serious unwillingly 
 
 quick warn! Mostly offtab if im alone or the person im C*H'ing is afk so if you try to talk and I dont resp,just wait until Im back from offtab.(⁠ ⁠≧⁠Д⁠≦⁠) .
 
-#× Dni! ; people who cant take jokes,Pedos(get out of my page please),10- aged people,PROSHIPPERS (╥﹏╥) , romantical darkshippers can int sexual ones dni,(targetted name) star, .
+#× Dni! ; people who cant take jokes,Pedos(get out of my page please),10- aged people,PROSHIPPERS (╥﹏╥) , romantical darkshippers can int sexual ones dni,(targetted name) starrgirrlzz, .
 
 #★ INT IMMEDIATELY;every moot,im scared to int or C+H myself.interactive people like heleloo I need people who will talk with me 24/7. Pony town players...hehehdh...TURKISH PONY TOWN PLAYERS...HEHEHEHEH. freaky people (we can match freaks trust) .
 
