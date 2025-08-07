@@ -5,6 +5,8 @@ Me and my wife core!!! ;
 
 Hi welcome ladies/gentlemans im making this account and all for ponytown so If it goes buns im sorry(⁠-⁠_⁠-⁠;⁠)⁠・⁠・⁠・
 
+SHIPS DNIUF unless doublefedora or frozendebt.:3
+
 Theres been few people going around stealing my character designs etc. please whisper me when taking inspp or wanting to copy few stuff,maybe ill help you with hard parts if u ask me first before taking inspo...I dont let anyone copy my ponies anyways,I gave effort to them, "I" gave effort,not you. so please DNC any of my ponies in pony town. thank you for listening ♬⋆.˚｡⁠:ﾟ⁠(⁠;⁠´⁠∩⁠`⁠;⁠)ﾟ⁠:⁠｡
 
 Aug 1.2012 (clearly minor.adults dniuf.) they/them 
