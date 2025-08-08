@@ -40,7 +40,44 @@ quick warn! Mostly offtab if im alone or the person im C*H'ing is afk so if you 
 
 #ᯓ★ I like drawing,writing,helping people,doing jokes whlist making people laugh and hanging out on pony town with friends,trust me I love it.𖹭𖹭(⁠ ⁠˘⁠ ⁠³⁠˘⁠)⁠♥ .
 
-#★!! if Im being too weird please lmk,I wouldnt want anyone to be uncomf because of me(⁠๑⁠•⁠﹏⁠•⁠) .
+#★!! if Im being too weird please lmk,I wouldnt want anyone to be uncomf because of me(⁠๑⁠•⁠﹏⁠•⁠) except if youre in my dni list,no comfort for you buddy .
+
+<img width="257" height="263" alt="1000032233" src="https://github.com/user-attachments/assets/3d4817fa-a915-4a20-9628-99b066273213" />
+
+Popular favorite fandoms ^_^ .
+
+🌼🌍 . Dandy's world 
+🗡️🐋 . forsaken
+❄️🎢 . south park
+🌍🥓 . Eddsworld
+❤️🌺 . Hell park
+💀🩸 . die of death
+👑💲 . May madness 2021 (community)
+🤖💤 . murder drones
+
+<img width="420" height="420" alt="1000031492" src="https://github.com/user-attachments/assets/7f56bb29-6c08-436d-8746-13891fc30142" />
+
+Fav chars!!
+
+🌊🩸 . Gasharpoon 
+2️⃣🕑 . two time
+🔫🎰 . chance
+⚔️🎩 . Mafioso
+🥗✡️ . Kyle broflovski (I dont support the religion but I repsect them alot.)
+🎶🎀 . Melody (Brawl stars)
+👊🍿 . fang (brawl stars)
+🐶🐾 . pebble
+📺⭐ . Vee
+🧑‍🎄🔔 . bobette
+🦌🎁 . rudie
+💐🧺 . bassie
+🌿🧌 . griefer
+❄️👑 . cruel king
+👷‍♂️🩸 . hatred
+⚓🔥 . Cap'n trotter
+(Got lazy gng ask me for my favs later)
+
+
 
 <!--
 **P3stTheBeetle/P3stTheBeetle** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
