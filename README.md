@@ -1,3 +1,6 @@
+<img width="640" height="97" alt="1000033001" src="https://github.com/user-attachments/assets/ce72b6aa-92ee-4cd2-8239-5f663677dff1" />
+
+
 💤READ BEFORE INTERACTING!!🎀
 
 Quick explanations and about me!! ˙✧˖°📷 ༘ ⋆｡˚ .
@@ -27,6 +30,8 @@ hypersensitive,please dont be too mean. I regret everything quickly.(⁠=⁠^⁠
 put "/Nsrs" "/jk" First when doing a joke,Or I will take in serious unwillingly .
 
 ..intro ˙ . ꒷ 🍰 . 𖦹˙—.ᐟ.ᐟ.ᐟ..
+<img width="800" height="267" alt="1000033002" src="https://github.com/user-attachments/assets/3a116540-d5fc-48cb-b4c8-33060fd8d8bd" />
+
 
 #ᯓ★ My name is Kylie you can call me any nickname like Ky or any character im cosplaying!! or mainly call me two time,heh. . .⋆🐾° .
 
@@ -42,54 +47,7 @@ quick warn! Mostly offtab if im alone or the person im C*H'ing is afk so if you 
 
 #★!! if Im being too weird please lmk,I wouldnt want anyone to be uncomf because of me(⁠๑⁠•⁠﹏⁠•⁠) except if youre in my dni list,no comfort for you buddy .
 
-<img width="257" height="263" alt="1000032233" src="https://github.com/user-attachments/assets/3d4817fa-a915-4a20-9628-99b066273213" />
+more soon,,still updating
 
-Popular favorite fandoms ^_^ .
+<img width="640" height="97" alt="1000033003" src="https://github.com/user-attachments/assets/f2d7c3d9-6f34-450b-bd54-51ea1571b1aa" />
 
-🌼🌍 . Dandy's world 
-🗡️🐋 . forsaken
-❄️🎢 . south park
-🌍🥓 . Eddsworld
-❤️🌺 . Hell park
-💀🩸 . die of death
-👑💲 . May madness 2021 (community)
-🤖💤 . murder drones
-
-<img width="420" height="420" alt="1000031492" src="https://github.com/user-attachments/assets/7f56bb29-6c08-436d-8746-13891fc30142" />
-
-Fav chars!!
-
-🌊🩸 . Gasharpoon 
-2️⃣🕑 . two time
-🔫🎰 . chance
-⚔️🎩 . Mafioso
-🥗✡️ . Kyle broflovski (I dont support the religion but I repsect them alot.)
-🎶🎀 . Melody (Brawl stars)
-👊🍿 . fang (brawl stars)
-🐶🐾 . pebble
-📺⭐ . Vee
-🧑‍🎄🔔 . bobette
-🦌🎁 . rudie
-💐🧺 . bassie
-🌿🧌 . griefer
-❄️👑 . cruel king
-👷‍♂️🩸 . hatred
-⚓🔥 . Cap'n trotter
-(Got lazy gng ask me for my favs later)
-
-
-
-<!--
-**P3stTheBeetle/P3stTheBeetle** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
