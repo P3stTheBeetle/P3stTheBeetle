@@ -3,6 +3,9 @@
 
 💤READ BEFORE INTERACTING!!🎀
 
+![1000033076](https://github.com/user-attachments/assets/0afd9618-c935-4ae9-915e-1309f1c9dfe1)
+
+
 Quick explanations and about me!! ˙✧˖°📷 ༘ ⋆｡˚ .
 
 Me and my wife core!!! . ;
@@ -19,7 +22,8 @@ Panse×sual . 🎰 Gambling machine .
 .!!TAKEN BY A BEAUTIFUL WOMAN!!.
 
 fictkin and hyperfixated on ꥟ .
-![1000032418](https://github.com/user-attachments/assets/d11a21a6-a124-4168-bf03-d869c2735558)
+![1000033066](https://github.com/user-attachments/assets/83e74ac9-248a-4175-a4f3-76267be8c369)
+
 
 
 Aug 1.2011 (clearly minor.adults dniuf.) they/them .
@@ -28,6 +32,8 @@ Aug 1.2011 (clearly minor.adults dniuf.) they/them .
 hypersensitive,please dont be too mean. I regret everything quickly.(⁠=⁠^⁠･⁠ｪ⁠･⁠^⁠=⁠) .
 
 put "/Nsrs" "/jk" First when doing a joke,Or I will take in serious unwillingly .
+
+If I suddenly go dry without saying sorry or start moving away from you when you cuddle,just stop and give me.space.
 
 ..intro ˙ . ꒷ 🍰 . 𖦹˙—.ᐟ.ᐟ.ᐟ..
 <img width="800" height="267" alt="1000033002" src="https://github.com/user-attachments/assets/3a116540-d5fc-48cb-b4c8-33060fd8d8bd" />
