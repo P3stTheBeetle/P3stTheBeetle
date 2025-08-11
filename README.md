@@ -5,6 +5,8 @@
 
 ![1000033076](https://github.com/user-attachments/assets/0afd9618-c935-4ae9-915e-1309f1c9dfe1)
 
+(reason why I put the gif is the bottom text thingy was funny enough in my option)
+
 
 Quick explanations and about me!! ˙✧˖°📷 ༘ ⋆｡˚ .
 
@@ -42,13 +44,13 @@ If I suddenly go dry without saying sorry or start moving away from you when you
 
 quick warn! Mostly offtab if im alone or the person im C*H'ing is afk so if you try to talk and I dont resp,just wait until Im back from offtab.(⁠ ⁠≧⁠Д⁠≦⁠) .
 
-#× Dni! ; people who cant take jokes,Pedos(get out of my page please),10- aged people,PROSHIPPERS (╥﹏╥) , romantical darkshippers can int sexual ones dni,(targetted name) starrgirrlzz, .
+#× Dni! ; people who cant take jokes,Pedos(get out of my page please),10- aged people,PROSHIPPERS (╥﹏╥) , romantical darkshippers can int sexual ones dni,(targetted name) starrgirrlzz,people who judges over ships,  .
 
 #★ INT IMMEDIATELY;every moot,im scared to int or C+H myself.interactive people like heleloo I need people who will talk with me 24/7. Pony town players...hehehdh...TURKISH PONY TOWN PLAYERS...HEHEHEHEH. freaky people (we can match freaks trust) .
 
 #ᯓ★ I like drawing,writing,helping people,doing jokes whlist making people laugh and hanging out on pony town with friends,trust me I love it.𖹭𖹭(⁠ ⁠˘⁠ ⁠³⁠˘⁠)⁠♥ .
 
-#★!! if Im being too weird please lmk,I wouldnt want anyone to be uncomf because of me(⁠๑⁠•⁠﹏⁠•⁠) except if youre in my dni list,no comfort for you buddy .
+#★!! if Im being too weird please lmk,I wouldnt want anyone to be uncomf because of me(⁠๑⁠•⁠﹏⁠•⁠) except if youre in my dni list,no comfort for you buddy, or If you said it kindlyand I ignore it js hide me. if you wont hide me,well have fun buddy,I dont make sudden beefs like that so I'll probably win thanks to fellow ponies who supports me ^^.
 
 more soon,,still updating
 
