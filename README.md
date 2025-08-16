@@ -1,4 +1,5 @@
-<img width="640" height="97" alt="1000033001" src="https://github.com/user-attachments/assets/ce72b6aa-92ee-4cd2-8239-5f663677dff1" />
+![1000033596](https://github.com/user-attachments/assets/ecd2b841-8b71-4d4b-b0f9-82eccad58fc1)
+
 
 
 💤READ BEFORE INTERACTING!!🎀
@@ -54,5 +55,5 @@ quick warn! Mostly offtab if im alone or the person im C*H'ing is afk so if you 
 
 more soon,,still updating
 
-<img width="640" height="97" alt="1000033003" src="https://github.com/user-attachments/assets/f2d7c3d9-6f34-450b-bd54-51ea1571b1aa" />
+![1000033595](https://github.com/user-attachments/assets/1c497231-57c8-4ea2-b919-9428cdf89a49)
 
