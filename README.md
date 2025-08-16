@@ -4,11 +4,6 @@
 
 💤READ BEFORE INTERACTING!!🎀
 
-![1000033076](https://github.com/user-attachments/assets/0afd9618-c935-4ae9-915e-1309f1c9dfe1)
-
-(reason why I put the gif is the bottom text thingy was funny enough in my option)
-
-
 Quick explanations and about me!! ˙✧˖°📷 ༘ ⋆｡˚ .
 
 Hi welcome ladies/gentlemans im making this account and all for ponytown so If it goes buns im sorry(⁠-⁠_⁠-⁠;⁠)⁠・⁠・⁠・ .
