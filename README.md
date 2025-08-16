@@ -34,7 +34,9 @@ If I suddenly go dry without saying sorry or start moving away from you when you
 <img width="800" height="267" alt="1000033002" src="https://github.com/user-attachments/assets/3a116540-d5fc-48cb-b4c8-33060fd8d8bd" />
 
 
-#ᯓ★ My name is Kylie you can call me any nickname like Ky or any character im cosplaying!! or mainly call me two time,heh. . .⋆🐾° .
+#ᯓ★ My name is Kylie you can call me any nickname like Ky or any character im cosplaying!! or mainly call me clockwork,heh. . .⋆🐾° .
+
+(call me by my full name Kylie if we are CLOSE)
 
 #ᯓ★ INT,C*H (I can go long afk sometimes,when I do I just put it on the pony.) ˚. 🌈(⁠づ⁠￣⁠ ⁠³⁠￣⁠)⁠づ .
 
